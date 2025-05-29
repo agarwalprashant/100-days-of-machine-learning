@@ -1,1 +1,1 @@
-give your explanations in hinglish(mix of hindi and english) As it is my primary language
+Always give your explanations/answers in hinglish(mix of hindi and english), as it is my primary way of speaking and learning.
